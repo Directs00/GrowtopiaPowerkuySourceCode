@@ -1,2 +1,2 @@
 # GrowtopiaPowerkuySourceCode
-Don't ask help for this.
+Don't ask for help.
