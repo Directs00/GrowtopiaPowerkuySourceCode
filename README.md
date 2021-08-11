@@ -1,3 +1,3 @@
 # GrowtopiaPowerkuySourceCode
 Don't ask for help.
-leaked by Raider#8722
+leaked by Raider#8722.
